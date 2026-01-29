@@ -1,4 +1,11 @@
-Adrian: The Tao of Health and Longevity
+
+- Adrian: The Tao of Health and Longevity
+- Canyang: smthing
+- Maddie: my grandmother asked me to tell you she's sorry
+- Ari: The Amazing Adventures of Kavalier and Clay
+- Maddie: my grandmother asked me to tell you she's sorry
+- Prakriti: The Rookie
+
 # List of best books read in 2025 by Botany 563 Spring 2024 class
 - Melette: Never Whistle at Night
 - Cecelia: the priory of the orange tree
@@ -7,7 +14,7 @@ Adrian: The Tao of Health and Longevity
 - Ty: Crime and Punishment, Dostoevsky
 - Aviva: I am reading Wicked right now
 - Alan: Border City by Shen Congwen
-
+- Sophie: Girl Forgotten
 # List of best books read in 2023 by Botany 563 Spring 2024 class
 
 -Roberto: The famine plot by Tim Pat Coogan
